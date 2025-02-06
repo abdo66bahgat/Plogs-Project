@@ -1,2 +1,2 @@
 
-## Codezilla Blog
+## NMU Blogs
